@@ -18,7 +18,7 @@ Link de Descarga: https://mega.nz/file/ozxTCAZR#g-knrkbxKO6KW_VD1HiF13YvRZKL66RV
 
 
 
-                  https://inacapmailcl-my.sharepoint.com/:u:/g/personal/marcos_rodriguez13_inacapmail_cl/EY6qi4lmrqxDspNQH-OuWTkB8axP_So7MVZYC-8LFUUDMQ?e=RaID2l
+https://inacapmailcl-my.sharepoint.com/:u:/g/personal/marcos_rodriguez13_inacapmail_cl/EY6qi4lmrqxDspNQH-OuWTkB8axP_So7MVZYC-8LFUUDMQ?e=RaID2l
 
 
 

@@ -17,11 +17,11 @@ Todo el desarrollo se llevara a cabo en Github como plataforma OpenSource para q
 Link de Descarga: 
 
 
-1. https://mega.nz/file/ozxTCAZR#g-knrkbxKO6KW_VD1HiF13YvRZKL66RV5LZpQY6PV-g
+1. 
 
 
 
-2. https://inacapmailcl-my.sharepoint.com/:u:/g/personal/marcos_rodriguez13_inacapmail_cl/EY6qi4lmrqxDspNQH-OuWTkB8axP_So7MVZYC-8LFUUDMQ?e=RaID2l
+2. https://inacapmailcl-my.sharepoint.com/:u:/g/personal/marcos_rodriguez13_inacapmail_cl/EcSt0I9v7DpFh_C5mi_Zt6sB4-HQPtdDzhxzMqQf7G9XjA?e=JtLdeP
 
 
 

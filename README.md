@@ -22,13 +22,12 @@ Link de Descarga:
 
 
 2.https://inacapmailcl-my.sharepoint.com/:u:/g/personal/marcos_rodriguez13_inacapmail_cl/EVOO0gouQdBNh2cn9X9XYJwB9x9MYh5e7qDkmSulEN_GPw?e=QJ6UH9 
+  
+  
   MD5: https://inacapmailcl-my.sharepoint.com/:u:/g/personal/marcos_rodriguez13_inacapmail_cl/EcSt0I9v7DpFh_C5mi_Zt6sB4-HQPtdDzhxzMqQf7G9XjA?e=JtLdeP
 
 
 
-
-
-Link MD5: https://mega.nz/file/U2RmDCzC#4CL9rGfgdRiMKuQJU8gnerGU_FM2aOXmSlT9ydXGXB0
 
 
 
